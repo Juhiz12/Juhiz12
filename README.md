@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Juhiz12
+- 👀 I’m interested in video game cheats
+- 📫 How to reach me : Discord - Juhiz#2171
